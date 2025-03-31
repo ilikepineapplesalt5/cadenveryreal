@@ -1,1 +1,3 @@
-yo i like creating minecraft stuff
+pineapples
+
+also dont mind my username and all the minecraft stuff its an old acc
